@@ -6,5 +6,5 @@
 - 💙 I'm particularly interested in hardware, circuits, and game development, however, I am still interested in exploring new topics and expanding my knowledge.
 - 💬 I'm always open to collaboration, and am looking for a job/paid internship for summer 2025.
 - 📫 To reach me, message me via my [LinkedIn](linkedin.com/in/ana-gordon-b90a60255).
-- ⚡ Fun fact: I am a varsity athlete here at McGill! I love music and travelling.
+- ⚡ Fun fact: I am a varsity athlete here at McGill!
 
